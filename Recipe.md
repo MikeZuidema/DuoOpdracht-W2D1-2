@@ -15,7 +15,6 @@
 ## INGREDIENTS FOR THE TOP LAYER
  * 150 g dark choc for the top
  * 1 tbsp coconut oil
-
  
 ## DIRECTIONS
 1. 0Ideally soak the cashew nuts overnight. If you don't have time just fill and boil the kettle and soak in boiling water for 30 mins. Drain and rinse them.
