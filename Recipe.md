@@ -4,6 +4,7 @@
  # Flourless Chocolate Ganache Cake
 
  ## INGREDIENTS
+
  * 350 g soaked cashews (250g before soaking)
  * 100 g coconut oil
  * 50 ml maple syrup
@@ -33,4 +34,3 @@
 
 8. Decorate with anything you like on top such as chopped pistachio, raspberry, rose petals etc etc
 Best served in small slices as its so rich and kept in the fridge so it holds its form. Enjoy!
-
